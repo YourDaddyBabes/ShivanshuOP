@@ -1,3 +1,3 @@
 ## Happiest Birthday!!!
 
-# [✨Shinchu✨](https://yourdaddybabes.github.io/bittu1/)
+# [✨Bittu✨](https://yourdaddybabes.github.io/bittu1/)
